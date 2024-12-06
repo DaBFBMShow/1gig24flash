@@ -1,5 +1,5 @@
 # 1gig24flash
-A cool zip collection of all my flash games I got.
+A cool zip collection of all my flash games I got...
 y
 y
 y
